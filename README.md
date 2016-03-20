@@ -1,1 +1,0 @@
-# ORT_1_praktikum
